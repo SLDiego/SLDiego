@@ -5,6 +5,7 @@
 </br>
 
 
+
 ### 💻 Sobre mim 
 
 - 🤓 Aperfeiçoando meus conhecimentos e explorando novas tecnologias.
@@ -45,6 +46,8 @@
 
 ### <b> Obrigado por visitar meu perfil 😄 </b><br>
 
+  
+  
 
 
 
