@@ -4,8 +4,6 @@
 
 </br>
 
-
-
 ### 💻 Sobre mim 
 
 - 🤓 Aperfeiçoando meus conhecimentos e explorando novas tecnologias.
